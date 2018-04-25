@@ -1,0 +1,5 @@
+This is the new README file for our project that is called musical adventures.
+iuasdmnkcdnvajfbdgsssssssssjnjkfhgklnsdiofjaiosmfmf
+dfajlfghfkdg
+fdsgdfkljglkfdng
+hsdgjknfgdhnjfgnjksmdgklsginrtkfgdiohreklmgfioarjfio
